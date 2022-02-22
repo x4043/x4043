@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @x4043
-- 📫 DM me: https://www.reddit.com/user/x4043
+- Support me here: https://patreon.com/x4043
+- DM me here: https://www.reddit.com/user/x4043
+- For business enquiries only: aj167@pm.me
