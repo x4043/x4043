@@ -1,3 +1,3 @@
-- Support me here: https://patreon.com/x4043
+- Support me here: https://www.paypal.com/donate/?hosted_button_id=BXNTN9TCHD6XW
 - DM me here: https://www.reddit.com/user/x4043
 - For business enquiries only: aj167@pm.me
